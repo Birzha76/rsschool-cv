@@ -1,1 +1,1 @@
-# rs-school
+https://birzha76.github.io/rsschool-cv/cv
